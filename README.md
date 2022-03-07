@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @eerugg
+- 👀 I’m interested in Cats 🐈
+- 🌱 I’m currently learning Gardening
+- 📫 How to reach me: Through work is easiest!
